@@ -4,7 +4,7 @@ ${\textsf{\color{#001943} hi there , i'm jay !! }}$
 
 ${\textsf{\color{#2c7cff} i go by she/her strictly, and i'm 19 }}$
 
-${\textsf{\color{#77abff} i am diagnosed with depression and social anxiety besides other strong symptoms of different mental illnesses, so please interact with extreme care at all times }}$
+${\textsf{\color{#77abff} i am diagnosed with depression and social anxiety besides other mental illnesses, so please interact with extreme care at all times }}$
 
 ${\textsf{\color{#77abff}  extreme care at all times }}$
 
