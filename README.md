@@ -6,6 +6,10 @@ ${\textsf{\color{#2c7cff} i go by she/her strictly, and i'm 19 }}$
 
 ${\textsf{\color{#77abff} i am diagnosed with depression and social anxiety besides other strong symptoms of different mental illnesses, so please interact with extreme care at all times }}$
 
+${\textsf{\color{#77abff}  extreme care at all times }}$
+
 ${\textsf{\color{#a9caff} hypersharing yume of sebastian solace before AND after conviction. seb is seb and i love all of him }}$
 
-other special interests of mine include: ARGs, fnaf, poppy playtime and iron lung
+${\textsf{\color{#001943} other special interests of mine include: ARGs, fnaf, poppy playtime and iron lung }}$
+
+
