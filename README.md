@@ -16,6 +16,12 @@ ${\textsf{\color{#001943} other special interests of mine include: ARGs, fnaf, p
 
 [ata](https://malharejayexe.atabook.org/) ⟡ ݁₊ . [straw](https://malhareexelolz.straw.page/)
 
+${\textsf{\color{#77abff} i'm mostly offtab or afk so i'd prefer people whisper to me instead so i don't miss anything }}$
+
 <img width="1246" height="240" alt="Image" src="https://github.com/user-attachments/assets/2aa12547-5d8c-4e03-8cf5-236abd7ce476" />
+
+${\textsf{\color{#a9caff} random fun facts: my favorite color is pink and i love strawberries ok bye }}$
+
+![Image](https://github.com/user-attachments/assets/e38efe1b-54cc-4801-bbb9-eda3eaa18b80)
 
 
