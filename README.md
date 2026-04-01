@@ -16,4 +16,6 @@ ${\textsf{\color{#001943} other special interests of mine include: ARGs, fnaf, p
 
 [ata](https://malharejayexe.atabook.org/) ⟡ ݁₊ . [straw](https://malhareexelolz.straw.page/)
 
+<img width="1246" height="240" alt="Image" src="https://github.com/user-attachments/assets/2aa12547-5d8c-4e03-8cf5-236abd7ce476" />
+
 
