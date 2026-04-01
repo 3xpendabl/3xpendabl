@@ -12,4 +12,8 @@ ${\textsf{\color{#a9caff} hypersharing yume of sebastian solace before AND after
 
 ${\textsf{\color{#001943} other special interests of mine include: ARGs, fnaf, poppy playtime and iron lung }}$
 
+<img width="1280" height="325" alt="Image" src="https://github.com/user-attachments/assets/4db6d313-f3e7-4ba2-ab00-cf11cf07f252" />
+
+[ata](https://malharejayexe.atabook.org/) ⟡ ݁₊ . [straw](https://malhareexelolz.straw.page/)
+
 
