@@ -14,7 +14,7 @@ ${\textsf{\color{#001943} other special interests of mine include: ARGs, fnaf, p
 
 <img width="1280" height="281" alt="Image" src="https://github.com/user-attachments/assets/de8c321e-f4bd-4efd-8efe-2dafd4b06ec6" />
 
-[ata](https://malharejayexe.atabook.org/) ⟡ ݁₊ . [straw](https://malhareexelolz.straw.page/) ˚. ᵎᵎ [wow i wonder who this man is/nsrs](https://youtooz.com/products/astralspiff)
+[ata](https://malharejayexe.atabook.org/) ⟡ ݁₊ . [straw](https://expndabl.straw.page) ˚. ᵎᵎ [wow i wonder who this man is/nsrs](https://youtooz.com/products/astralspiff)
 
 ${\textsf{\color{#77abff} i'm mostly offtab or afk so i'd prefer people whisper to me instead so i don't miss anything }}$
 
