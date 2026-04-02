@@ -8,6 +8,8 @@ ${\textsf{\color{#77abff} i am diagnosed with depression and social anxiety besi
 
 ${\textsf{\color{#a9caff} hypersharing yume of sebastian solace before AND after conviction. seb is seb and i love all of him }}$
 
+${\textsf{\color{#a9caff} + vanny and zerum fictkin }}$
+
 ${\textsf{\color{#001943} other special interests of mine include: ARGs, fnaf, poppy playtime and iron lung }}$
 
 <img width="1280" height="281" alt="Image" src="https://github.com/user-attachments/assets/de8c321e-f4bd-4efd-8efe-2dafd4b06ec6" />
